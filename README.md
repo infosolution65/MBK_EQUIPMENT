@@ -1,1 +1,0 @@
-# MBK_EQUIPMENT
